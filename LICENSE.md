@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with best liquidation sniper bot Module | perpetual-trading + slippage-control, the #1 liquidation sniper bot. Includes perpetual-trading and slippage-control
 
 
 
